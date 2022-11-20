@@ -1,2 +1,2 @@
 # CV
-Academic CV of Vanessa Villanueva Collao
+Vanessa Villanueva Collao
